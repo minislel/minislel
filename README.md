@@ -12,7 +12,7 @@ Oh, apart from coding also I love DIY, electronics, cars (mainly working on mine
 📫 How to reach me:
 - 📩: marcin4kt@gmail.com
 - LinkedIn : [minislel](https://www.linkedin.com/in/minislel/)
-
+- FB: [Marcin Świderski](https://www.facebook.com/minislel)
 
 
 
