@@ -1,6 +1,6 @@
 
 # Greetings, lost wanderer 👋
-## ~ Here's my portfolio btw [portfolio.minislel.xyz](https://portfolio.minislel.xyz/) ~
+## ~Here's my portfolio btw [portfolio.minislel.xyz](https://portfolio.minislel.xyz/)~
 ### Step forward, I have a few things I want to tell you: 👇
 
 
